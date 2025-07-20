@@ -1,4 +1,4 @@
-Hi there, I'm [Raunit seth] 👋
+Hi there, I'm Raunit seth 👋
 
 
 
